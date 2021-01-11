@@ -1,1 +1,1 @@
-# test
+# test olarak deneme amacli hazirladim..
